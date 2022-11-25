@@ -13,4 +13,4 @@ Here I will collect my projects, highlighting my areas of interest and work in t
 
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+[am.mihalache@gmail.com](mailto:am.mihalache@gmail.com)
